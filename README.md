@@ -25,15 +25,19 @@ Wierzymy, że każdy projekt jest wyjątkowy i wymaga indywidualnego podejścia,
 
 ### 2. Strona na zbiórke (https://wspieram.kztczew.pl)
 
+---
+
+### 3. Strona dla ginekolog (https://kajamajda.pl)
 
 ---
+
 
 ## 📫 Kontakt
 
 Potrzebujesz strony, skontaktuj się z nami!
 
 - ✉️ Email: [martyna.marczak@proton.me](mailto:martyna.marczak@proton.me) & [kajetan.majda@proton.me](mailto:kajetan.majda@proton.me)
-- 💼 LinkedIn: [Martyna Marczak - LinkedIn](https://pl.linkedin.com/in/martyna-marczak-7a6b51243?trk=public_profile_browsemap)
+- 💼 LinkedIn: [Martyna Marczak - LinkedIn](https://pl.linkedin.com/in/martyna-marczak-7a6b51243?trk=public_profile_browsemap) & [Kajetan Majda - LinkedIn](https://pl.linkedin.com/in/kajetan-majda?original_referer=https%3A%2F%2Fwww.google.com%2F)
 - 🌐 Nasza strona: Wkrótce
 
 ---
