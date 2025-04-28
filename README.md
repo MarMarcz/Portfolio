@@ -24,6 +24,8 @@ Wierzymy, że każdy projekt jest wyjątkowy i wymaga indywidualnego podejścia,
 ---
 
 ### 2. Strona na zbiórke (https://wspieram.kztczew.pl)
+![wspieram](https://github.com/user-attachments/assets/d5a80827-1e3f-4b5f-8620-9e6da6d9e527)
+
 
 ---
 
